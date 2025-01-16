@@ -7,5 +7,5 @@
 > * Jalapenaos
 > * Salt (to taste)
 > * Cilantro
-> * Limon (verde
+> * Limon (verde)
 ## Instructions
